@@ -1,0 +1,30 @@
+# Led Zeppelin – Communication Breakdown (Remaster)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:10.72] Hey, girl, stop what you're doin'
+[00:15.73] Hey, girl, you'll drive me to ruin
+[00:21.53] I don't know what it is I like about you, but I like it a lot
+[00:26.98] Won't you let me hold you, now, let me feel your lovin' touch
+[00:57.48] 
+[00:32.55] Communication breakdown, it's always the same
+[00:38.59] Havin' a nervous breakdown, a-drive me insane
+[01:01.09] 
+[00:49.14] Hey, girl, I got somethin' I think you oughta know
+[00:54.79] Hey, babe, I wanna tell ya that I love you so
+[00:59.97] I wanna hold you in my arms, yeah
+[01:05.48] I'm never gonna let you go, 'cause I like your charm
+[01:31.48] 
+[01:11.18] Communication breakdown, it's always the same
+[01:16.70] Havin' a nervous breakdown, drive me insane, ow, suck
+[01:43.20] 
+[01:45.03] Communication breakdown, it's always the same
+[01:49.87] Havin' a nervous breakdown, a-drive me insane, yeah
+[02:15.37] 
+[02:00.96] Communicate, I want you to love me all night
+[02:05.36] I want you to love me all night, I want, hey, I want, yeah
+[02:13.81] I want you to love me, I want you to love, babe
+[02:19.44] I want you to love, yeah, I want you to love
+[02:24.22] Hey, I want you to love, yeah, I want you to
+```
